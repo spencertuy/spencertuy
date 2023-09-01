@@ -1,5 +1,4 @@
 - 👋 oi, eu sou a Alana 
 - 🌱 estudo no colegio civico militar beatriz biavtti 1° ano do ensino médio
 - 👀 falo portugues, e sou intermediaria no ingles;
-- 💞️ 
-- 📫 
+- 💞️ amo livros , de romance mais ainda;
